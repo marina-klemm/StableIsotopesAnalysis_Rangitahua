@@ -1,1 +1,1 @@
-# StableIsotopesAnalysis_Rangitahua
+# Stable Isotopes Analysis Rangitāhua
